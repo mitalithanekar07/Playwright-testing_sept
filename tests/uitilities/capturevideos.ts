@@ -1,0 +1,1 @@
+capture all screeshots and vidos
